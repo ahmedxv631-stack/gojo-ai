@@ -1,5 +1,5 @@
 /*
-code: game eye anime
+code: game eye anime//https://whatsapp.com/channel/0029VbBAbpMFCCoci19FRp2x
 by: 𝑨𝒉𝒎𝒆𝒅 𝑨𝒃𝒅𝒆𝒍𝒃𝒂𝒔𝒆𝒕
 */
 
